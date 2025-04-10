@@ -7,3 +7,5 @@
 
 
 - https://cafe.naver.com/jinissamne
+
+ https://us02web.zoom.us/j/85808422978?pwd=XjaqFFVh4FCcLcUJfW2xa8aSIgfJlS.1
